@@ -10,3 +10,6 @@ tiantianshuqian
 ----------
 有什么问题可以联系
 Email:253933559@qq.com
+
+最新版的基本上所有功能都做好了...
+<a href="http://tiantianshuqian.bmob.cn/" >http://tiantianshuqian.bmob.cn/</a>
